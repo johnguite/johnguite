@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @johnguite
 - 👀 I’m interested in .....your work
-- 🌱 I’m currently learning .... programing
+- 🌱 I’m currently learning .....alot
 - 💞️ I’m looking to collaborate on ..... your work
 - 📫 How to reach me ..... find me
 
