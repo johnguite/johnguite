@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @johnguite
+- 👋 Hi, I’m @Guite
 - 👀 I’m interested in .....your work
 - 🌱 I’m currently learning .....alot
 - 💞️ I’m looking to collaborate on ..... your work
